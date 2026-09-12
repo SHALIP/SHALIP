@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Shalip
+# 👋 Hi, I'm vishalini
 
 ### 💻 IT Student | Developer | Tech Explorer
 
